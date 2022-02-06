@@ -12,6 +12,7 @@
 
 ## Something Fabulous
 作者：Alexis Hall
+![avatar](https://images.squarespace-cdn.com/content/v1/58c180edff7c50dd0e51a2ad/4be2823d-9538-46b8-8477-e31f6f3eb967/Something+Fabulous+by+Alexis+Hall-3.jpg)
 
 这部作品从前言到语言和主题上都致敬了简奥斯汀的《诺桑觉寺》，而诺桑觉寺就是一部有着的metafiction的小说。一个呆板的公爵向青梅竹马的女孩进行了极不浪漫的求婚，沉迷romance的女孩之后逃婚，公爵被女孩的弟弟拉着去追寻女孩。在和弟弟相处的过程中，公爵发现姐弟两人都充满浪漫色彩，他们从小失去父母，于是在书籍中构建属于自己的世界，他们不仅读romance，而且还自己写romance, 在那个年代，阅读虚构类小说常被认为是不符合绅士的行为，这让生性拘谨严肃的公爵大为震惊。
 
@@ -23,6 +24,7 @@
 
 ## Less
 作者：Andrew Sean Greer
+![avatar](https://d3i6fh83elv35t.cloudfront.net/static/2018/06/FS-Book-Fly-LESS-1024x576.jpg)
 
 这是meta感最重的一部小说，但作者巧妙地把故事包裹在了喜剧里。作者Andrew Sean Greer是一个生活在湾区的中年白男同性恋作家，而他笔下的Less也是一个生活在湾区的中年白男同性恋作家。Less同时遭遇了被拒稿的失业危机、年过五十的中年危机、深爱的前男友结婚的情感危机，于是他接下了环绕世界一圈的作家活动请柬，开始了一场奥德赛之旅。这本书两大主题——Gay和文学创作——贯穿始终，融合在了Less在每一个国家的经历中。
 
@@ -36,6 +38,7 @@ Less曾被当众讽刺"如果今晚我们要把奖颁给那些同化主义者，
 
 ## Indirection
 作者：Gregory Ashe
+![avatar](https://is4-ssl.mzstatic.com/image/thumb/Music125/v4/b7/3c/98/b73c9800-d78c-f8a0-7c2b-a983468190bf/rm_image.jpg/1200x600wp.png)
 
 格力高也写了这样一部meta感很重的作品，这一部作品的视角更加专注，特意关注了gay romance这个题材：同为侦探同事和爱人的North和Shaw来到了一个英耽集会现场，然而现场的一个男同性恋英耽作家却被谋杀。格力高在作品里借人物之口审视顺直人有没有资格写mm romance. 一些人写gay romance就像是一种fetishization，把ta们心中对于男性的幻想投影到了gay身上，在这些作家笔下的人物脸谱化和现实脱节，却因足够爽倍受其他受众欢迎. 格力高最终对于这类作品存在的价值做了肯定的表示。
 
